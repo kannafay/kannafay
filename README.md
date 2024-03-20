@@ -1,4 +1,4 @@
-### Hi there, I'm Oyiso, nice to meet you 👋!
+## Hi there, I'm Oyiso, nice to meet you 👋!
 
 <!--
 **kannafay/kannafay** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

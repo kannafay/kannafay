@@ -23,6 +23,6 @@ Here are some ideas to get you started:
 >
 > 还喜欢打游戏，特别是COD！
 
-突然对《绝区零》的美术很感兴趣，感觉很nice！
+突然对《绝区零》的美术画面很感兴趣，感觉很nice！
 
 ![](./images/banner2.png)

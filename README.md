@@ -17,16 +17,16 @@ Here are some ideas to get you started:
 
 ![](https://img.eyabc.cn/images/2024/03/25/vldps.png)
 
-> 🤪这家伙很懒！！！
+> 🤪 这家伙很懒！！！
 >
-> ✨喜欢 Coding 和 Gaming
+> ✨ 喜欢 Anime && Coding && Gaming（ACG？？？
 > 
-> ⚡我已经很努力的在成为一位强者了（bushi
+> ⚡ 我已经很努力的在成为一位强者了（bushi
 > 
-> 🤔正在思考...
+> 🤔 正在思考...
 >
-> 🎮喜欢打游戏，特别是 COD 和 LOL
+> 🎮 喜欢打游戏，特别是 COD 和 LOL！
 >
-> 🎨《绝区零》的美术画风真的很nice
+> 🎨《绝区零》的美术画风真的很NICE！
 
 

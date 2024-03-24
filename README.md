@@ -17,12 +17,16 @@ Here are some ideas to get you started:
 
 ![](./images/banner.png)
 
-> 这家伙真的很懒！
+> 🤪这家伙很懒！
 >
-> 但是这家伙很爱写WP主题且无所事事。
+> ✨喜欢 Coding 和 Gaming！
+> 
+> ⚡我已经很努力的在成为一位强者了！（bushi
+> 
+> 🤔正在思考...
 >
-> 还喜欢打游戏，特别是COD！
+> 🎮喜欢打游戏，特别是COD和LOL！
+>
+> 🎨《绝区零》的美术画风真的很nice！
 
-突然对《绝区零》的美术画面很感兴趣，感觉很nice！
 
-![](./images/banner2.png)

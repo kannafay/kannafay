@@ -15,7 +15,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-![](https://img.eyabc.cn/images/2024/03/25/vldps.png)
+![](./images/banner.png)
 
 > 🤪 这家伙很懒！！！
 >
